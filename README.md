@@ -2,7 +2,7 @@
 
 ## Group Members
 
-*
+* Nur Atiqah Binti Mat Jusoh (2217008)
 * Syazwani binti Rozali (2217642)
 * Auni haziqah (2116050)
 
